@@ -1,4 +1,4 @@
-# [inawo](https://www.inawo.com) 💍
+# 💍[inawo](https://www.inawo.com)
 
 For moments as special as you.
 ---
